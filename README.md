@@ -11,7 +11,7 @@
 **Dio è l'unica via.**
 
 
-_a luz que me guia é mais forte que os olhos que me cercam.
+_a luz que me guia é mais forte que os olhos que me cercam._
 
 - topico 1✌️​
 
