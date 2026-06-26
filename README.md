@@ -11,7 +11,7 @@
 **Dio è l'unica via.**
 
 
-_Saúdam-te os filhos de tua irmã, a eleita. Amém_
+_a luz que me guia é mais forte que os olhos que me cercam.
 
 - topico 1✌️​
 
